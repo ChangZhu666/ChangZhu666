@@ -1,7 +1,6 @@
 - 👋 Hi, I’m @changzhu  in China is 场主
 - 👀 I’m interested in game  sports cartoon and animation
 - 🌱 I’m currently learning 
-- 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me 3081850680@qq.com or 13786279502
 
 <!---
